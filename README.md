@@ -2,6 +2,6 @@
 
 some text
 
-# Contribution Details on Nov 29
+# Contribution Details on Nov 29 & 30
 
-No contribution due to marriage function
+No contribution due to marriage function on 29th and travel to chennai on 30th
